@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
+🔭  Hello Everyone , I'm AMIT kumar I’m currently working on my new web-based project on at large scale<br>👯 I’m looking to collaborate on an organisation or company who give and upgrade my knowledge skills also<br>🤝 I’m looking for help with<br>🌱 I’m currently learning some more technical skills and problem solving statements<br>💬 Ask me about<br>⚡ Fun fact
 
 
 ## 🌐 Socials:
